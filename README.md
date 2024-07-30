@@ -6,8 +6,7 @@
 مساء الخير، أنا ديفيد، انضممت للتو إلى القاعدة الجماهيرية منذ يوم أو يومين وقمت أيضًا بضم قاعدة جماهيرية القفل الأزرق. جئت اليوم لأجد بعض الأصدقاء في نفس القاعدة الجماهيرية، لا أمانع إذا كنت ذكرًا أو أنثى،
 ![Không Có Tiêu Đề1204_20240730191523](https://github.com/user-attachments/assets/a1f2901c-6660-4488-8502-2ce4348bd26f)
 ![dc5267ac8c619981bbf54707cb161b16](https://github.com/user-attachments/assets/6a00c55d-dfe7-4c4b-ab1e-c0bef9e446e5)
-please I just want your attention
-notice me. Touch me. Feel the orgasm. Drake 💙
+touch me, Drake💙
 ![20cb9eb391f32a7730485de40a74703c](https://github.com/user-attachments/assets/75b3e8c7-52e5-4a22-b2cf-b7aec14d06fd)
 DAMN      X        GYAT!
 erotic and 宗教
