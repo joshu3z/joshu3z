@@ -4,4 +4,5 @@
 ![Không Có Tiêu Đề1204_20240730191523](https://github.com/user-attachments/assets/a1f2901c-6660-4488-8502-2ce4348bd26f)
 ![dc5267ac8c619981bbf54707cb161b16](https://github.com/user-attachments/assets/6a00c55d-dfe7-4c4b-ab1e-c0bef9e446e5)
 ![20cb9eb391f32a7730485de40a74703c](https://github.com/user-attachments/assets/75b3e8c7-52e5-4a22-b2cf-b7aec14d06fd)
+erotic and 宗教
 ![04b9dd052b90557cb15adefbef972519](https://github.com/user-attachments/assets/271f254e-9560-4fad-aa6a-da86af927961)
